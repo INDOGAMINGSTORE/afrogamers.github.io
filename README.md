@@ -1,1 +1,1 @@
-# afrogamers.github.oi
+# afrogamers.github.io
